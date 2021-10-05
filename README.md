@@ -1,3 +1,3 @@
-reading: _The Box_, Marc Levinson
+reading: _Snow Crash_, Neal Stephenson
 
-listening to: "The Box", Roddy Rich
+listening: old m83
