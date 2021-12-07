@@ -1,3 +1,1 @@
-reading: _Snow Crash_, Neal Stephenson
-
-listening: old m83
+[Playboi Carti - 18 Minute EXTREME Moshpit Mix (w/transitions)](https://www.youtube.com/watch?v=imfWEySC3YQ)
